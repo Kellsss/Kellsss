@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kellsss
+- 👀 I'm currently taking care of the administartion and everything behind the scenes.
+- 🌱 I’m one of the owners from Hazard RP, a semi-rp fivem server.
+- 💞️ If you want to share ideas, make sure to tag me
+- 📫 You can contact me on Discord, my Discord is: Kells#0001
